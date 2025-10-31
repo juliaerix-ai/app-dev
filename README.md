@@ -7,4 +7,4 @@
 **Why I like it:** I like it because it perfectly mixes mystery, friendship, and adventure. The story keeps me hooked with its thrilling moments, '80s vibe, and lovable character who never give up on each other.
 
 ![Stranger Things]
-(https://www.slashfilm.com/img/gallery/stranger-things-season-3-official/intro-import.webp)
+(https://ceotudent.com/wp-content/uploads/2021/07/fs5pyl.jpg)
